@@ -2,5 +2,5 @@
 
 Öğr. Gör. Ali ÇETİNKAYA // MSc. Lect. Ali ÇETİNKAYA
 
-Scholar Google  
+Scholar Google Yıllık Atıf Grafiği
 
